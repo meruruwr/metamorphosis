@@ -10,3 +10,5 @@
 ok hii why r u here anyway. nanana just kidding, look! my uids
 
 hsr 618566403 ★ genshin 678418471
+
+![1000064818](https://github.com/user-attachments/assets/5861d850-e1e6-4877-9c7f-c98592ca502a)
