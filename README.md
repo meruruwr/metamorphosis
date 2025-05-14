@@ -1,4 +1,4 @@
-## 🔬
+## 🔬 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gf2p93s05qadzjbx9yblox2ds&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=gf2p93s05qadzjbx9yblox2ds&redirect=true)
 
@@ -10,7 +10,7 @@
 ![1000064308](https://github.com/user-attachments/assets/de3a48cd-a4c0-4de0-9eb2-87f9f60e8606)
 
 ## _something else_
-hsr <ins>618566403</ins>
+hsr <ins>618566403</ins></br>
 genshin <ins>678418471</ins>
 
 ![1000064818](https://github.com/user-attachments/assets/5861d850-e1e6-4877-9c7f-c98592ca502a)
