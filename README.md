@@ -9,6 +9,8 @@
 
 ![1000064308](https://github.com/user-attachments/assets/de3a48cd-a4c0-4de0-9eb2-87f9f60e8606)
 
-hsr 618566403 ★ genshin 678418471
+## _something else_
+hsr 618566403
+genshin 678418471
 
 ![1000064818](https://github.com/user-attachments/assets/5861d850-e1e6-4877-9c7f-c98592ca502a)
